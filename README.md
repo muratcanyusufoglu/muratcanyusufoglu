@@ -6,6 +6,6 @@
 
 ⏲ What I am doing now?
 
-I'm developing a project for my own game 🚀, I am developing parodi web sites 📃.
-. I'm developing an app with my friends 👨🏼‍🤝‍👨🏻, I also work as a FreeLancer 🆓.
+I'm developing a project for my own game 🚀, I am working a company for mobile application developer📃.
+
 
