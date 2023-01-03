@@ -6,6 +6,6 @@
 
 ⏲ What I am doing now?
 
-I'm developing a project for my own mobile apps.🚀, I am working a company for mobile application developer📃.
+I'm developing a project for my own mobile apps.🚀, I am working at SignumTTE for mobile application developer📃.
 
 
